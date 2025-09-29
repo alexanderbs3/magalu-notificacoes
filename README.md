@@ -1,1 +1,0 @@
-# magalu-notificacoes
